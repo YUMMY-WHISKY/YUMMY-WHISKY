@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning C language and network security
 - 💞️ I’m a college student
 - 📓 I come to record my learning journey
-- 📫 How to reach me?
+- 📫 How to connect me?
 - ☎️ 18385828398
 - 📧:mozixi86@gmail.com
 
