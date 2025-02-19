@@ -8,7 +8,7 @@
 - 📧:mozixi86@gmail.com
 
 Welcome everyone to follow me and witness my growth.
-Thank you gays very much!!!!
+Thank you guys very much!!!!
 
 <!---
 YUMMY-WHISKY/YUMMY-WHISKY is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
