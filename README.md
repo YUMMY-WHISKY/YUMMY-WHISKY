@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @YUMMY-WHISKY
+- 👋 Hi I’m @YUMMY-WHISKY
 - 👀 I’m interested in programming, computers and making money，haha
 - 🌱 I’m currently learning C language and network security
 - 💞️ I’m a college student
