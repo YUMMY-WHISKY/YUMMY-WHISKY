@@ -1,6 +1,6 @@
 - 👋 Hi I’m @YUMMY-WHISKY
 - 👀 I’m interested in programming, computers and making money，haha
-- 🌱 I’m currently learning C language and network security
+- 🌱 I’m currently learning network security
 - 💞️ I’m a college student
 - 📓 I come to record my learning journey
 - 📫 How to connect me?
